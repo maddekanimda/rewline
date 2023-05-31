@@ -2,4 +2,9 @@
 
 
 
+aynen kanka öyle mi olmus
+
+
+
+
 
